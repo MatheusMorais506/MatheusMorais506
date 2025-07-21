@@ -1,5 +1,3 @@
-## Hi there 👋
-
 ![1737060803119](https://github.com/user-attachments/assets/88d0fb8c-0070-4b44-8dbc-da3d66f490fc)
 
 Hello! 👋🏻 Meu nome é **Matheus Silva**.  
